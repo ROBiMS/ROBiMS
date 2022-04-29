@@ -1,4 +1,4 @@
-### Hi there 👋
+### Moin Moin from Germany 👋
 - 🌱 I’m currently learning Java, C
 - :shit: Close to drop out of university
 - 📫 How to reach me: TikTok @itzROBiMS
