@@ -1,6 +1,6 @@
 ### Hi there 👋
 - 🌱 I’m currently learning Java, C
-- 🔭 I’m currently working on my web portfolio
+- :shit: Close to drop out of university
 - 📫 How to reach me: TikTok @itzROBiMS
 - ⚡ Fun fact: 5 is scared of 6 since 7 8 9
 
